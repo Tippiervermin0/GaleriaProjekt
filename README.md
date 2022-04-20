@@ -1,1 +1,1 @@
-# GaleriaProjekt
+# Nagy Domonkos Kristóf
